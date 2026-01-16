@@ -1,1 +1,1 @@
-Koushal is also classed as munna
+Koushal is also called as munna
